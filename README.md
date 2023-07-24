@@ -1,0 +1,1 @@
+Organizing potential customers into groups or segments with comparable demands and responses to marketing actions is referred to as market segmentation in marketing. Market segmentation helps businesses to target various customer groups who view the entire worth of certain goods and services in a variety of ways.# MCD_Market_Segment
